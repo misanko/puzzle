@@ -21,6 +21,8 @@ for example in archaeology, advance through a chance observation, the significan
 will usually depend upon its power to modify our earlier theories."
 
 nothing is true, everything is permitted
-asdqq
-but wewo is geno
+ 
+ asdqq
+ 
+ but wewo is geno
 
